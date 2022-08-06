@@ -1,5 +1,5 @@
 - 👋 Hi, I’m 毛
-- 👀 I’m interested in playing basketball,playing computergames,reading ,listening to music and so on
+- 👀 I’m interested in playing basketball,playing computergames(including CSGO,双人成行,CS1.6,Arena Of Valo and so on),reading ,listening to music and so on.
 - 🌱 I’m currently learing in the Xinchang High School
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me 
